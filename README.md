@@ -1,0 +1,1 @@
+# Kvalifikacijas_Uzdevums
